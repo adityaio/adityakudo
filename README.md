@@ -1,1 +1,1 @@
-# adityakudo.github.io
+# adityakudo
